@@ -4,7 +4,7 @@ Pós-Graduado em Segurança da Informação e atualmente, me dedico nos cursos d
 os meus conhecimentos para enfim, engreçar em uma carreira merecida e sólida. Programar, sempre foi e será o meu foco. <br/>
 Apaixonado por resolver problemas usando programação. <br/>
 
-#### Hobbies:
+#### Hobbies: 
 🎮 Jogos <br/>
 👨‍💻 Programar<br/>
   
